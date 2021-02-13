@@ -13,4 +13,4 @@ Onto ungreased cookie sheets, drop dough rounded tablespoonfuls 2 inches apart.
 
 Bake 8 to 10 minutes or until light brown(centers will be soft). Cool 2 minutes; remove he cookes from the cookie sheet to a cooling rack. Cool completely, for about 30 minutes.
 
-and then your cookies are ready to eat.
+and then your cookies are ready to eat. 
